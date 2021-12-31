@@ -1,6 +1,7 @@
-- 👋 Hi, I’m @Spagnotti22 Lorenzo 
+- 👋 Hi, I’m @Spagnotti22 Lorenzo Peter Angelo Spagnotti III
+
 - 👀 I’m interested in learning how to become the whole self of who I want to be 
-- 🌱 I’m currently learning ... that people should just love each other. 
+- 🌱 I’m currently learning ... the universe  
 - 💞️ I’m looking to collaborate on ... Everything
 - 📫 How to reach me ...
 8168301984 pspagnotti22@gmail.com 
